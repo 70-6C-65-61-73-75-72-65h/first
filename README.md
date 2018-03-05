@@ -1,4 +1,3 @@
 # first
-Just another repository
-Hi humans!
-Yeah bitches!
+Die mf die!
+Blend of perfection irrigate all world by woes and sufferings
